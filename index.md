@@ -4,6 +4,6 @@ Home to the best mid apps you can find.
 
 ### Apps
 
-Coming soon?
+They were here just a minute ago!
 
-<sub><sup>© Mid Software LLC</sup></sub>
+<sub><sup>© 2022 Mid Software LLC</sup></sub>
